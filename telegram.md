@@ -7,6 +7,17 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 00:22
+---
+
+## gabandolcegiyare — post 1988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+gabandolcegiyare pinned a video
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 22:32
 ---
 
