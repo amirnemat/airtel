@@ -7,6 +7,17 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 19:37
+---
+
+## gabandolcegiyare — post 1992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+gabandolcegiyare pinned Deleted message
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 15:56
 ---
 
